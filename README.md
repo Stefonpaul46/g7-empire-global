@@ -1,1 +1,0 @@
-# g7-empire-global
